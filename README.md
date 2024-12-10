@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on sharpening my coding skills<br>👯 I’m looking to collaborate on any project I can Gain experience<br>🤝 I’m looking for help with any new technologies <br>🌱 I’m currently learning AI<br>💬 Ask me about anything<br>⚡ I love Cats and I am a Chill Guy
+🔭 I’m currently working on sharpening my coding skills<br>👯 I’m looking to collaborate on any project I can gain experience<br>🤝 I’m looking for help with any new technologies <br>🌱 I’m currently learning AI<br>💬 Ask me about anything<br>⚡ I love Cats and I am a Chill Guy
 
 
 ## 🌐 Socials:
